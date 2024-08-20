@@ -1,9 +1,24 @@
+You all love looking @ shit , LOLOL
+
+![](https://komarev.com/ghpvc/?username=twinkgarbage&color=blue)
+
+
+![](https://i.pinimg.com/564x/21/b1/f6/21b1f63563122e58477c59da75631670.jpg)
+
+.
+
+
+.
+
+
+
+.
+
 
 ![img](https://i.pinimg.com/564x/aa/fa/86/aafa869f561af2d22da7ce5ad9c1dd5b.jpg)
 
 . . .
 
-![](https://komarev.com/ghpvc/?username=twinkgarbage&color=blue)
 
    " I wanna be *just* like you! "
 
