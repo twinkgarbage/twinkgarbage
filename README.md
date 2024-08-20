@@ -3,6 +3,8 @@
 
 . . .
 
+![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
+
    " I wanna be *just* like you! "
 
        Hi hi! I'm REMY , But I have way other names to be called by! 
