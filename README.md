@@ -3,7 +3,7 @@
 
 . . .
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=blue)
+![](https://komarev.com/ghpvc/?username=twinkgarbage&color=blue)
 
    " I wanna be *just* like you! "
 
