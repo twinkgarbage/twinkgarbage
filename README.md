@@ -1,5 +1,5 @@
 You all love looking @ shit , LOLOL
-
+> GO TO MY STRAWPAGE PLEAASE!! I love looking at people's artwork, I need to collect them all!! (Im very sweet i promoise :(()
 ![](https://komarev.com/ghpvc/?username=twinkgarbage&color=blue)
 
 
